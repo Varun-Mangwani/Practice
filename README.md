@@ -1,2 +1,7 @@
-# Practice
-Practicing To Be Best And Sharing It to You Guys !! Keep Growing , Keep Practicing And Be Calm Level Up All The Way To The Place Where You Find Peace And Stop Acting And Working .
+#Varu Mangwani(MG)
+Practice Is The Key According To Me 
+I Will Upload My Practise Session Files Here To Showcase My Skills And Also To Make My Self Shoe How Much I Evolved From 
+#HelloW World 
+TO 
+#Major Projects 
+
